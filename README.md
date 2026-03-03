@@ -1,0 +1,2 @@
+# 1polatemlak
+web sayfası
